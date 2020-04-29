@@ -1,0 +1,1 @@
+dilindungi hak cipta
